@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌌 Diving into the void headfirst.<br>⚡ Fun facts:<br>🖼️ Pixel Artist.<br>⌨️ Creative Writer.<br>♟️ Loves Chess and Videogames.<br>
+🌌 Dives into the void headfirst.<br>⚡ Fun facts:<br>🖼️ Pixel Artist.<br>⌨️ Creative Writer.<br>♟️ Loves Chess and Videogames.<br>
 
 
 ## 🌐 Socials:
